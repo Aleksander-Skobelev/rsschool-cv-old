@@ -1,7 +1,11 @@
 **Aleksandr Skobelev**
+
 Location: Ukraine, Kramatorsk.
+
 Phone: +380671881497
+
 Email: skobelev.aleksander@gmail.com
+
 Soft skills:
 
 Hard skills:
